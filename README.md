@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning in Terna Engineering college. My core engineering branch is Information Technology.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me :- 
-- email:- avdhootsawantb1@gmail.com
+- email:- sawantavdhoot5@gmail.com
 - contact:- 9326207369
 
 <!---
